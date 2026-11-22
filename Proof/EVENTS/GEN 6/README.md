@@ -1,0 +1,1 @@
+![](https://raw.githubusercontent.com/SexyMalasada/SM-Proofs/refs/heads/main/Icons/G6%20Event.png)
